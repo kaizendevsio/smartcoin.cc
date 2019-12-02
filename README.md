@@ -1,0 +1,2 @@
+# smartcoin.cc
+THE NEXT GENERATION CURRENCY
